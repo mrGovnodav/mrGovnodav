@@ -1,1 +1,0 @@
-Misanthrope, nihilist, doomer, ghoul
